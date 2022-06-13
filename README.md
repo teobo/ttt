@@ -69,5 +69,6 @@ Die Kosten des Verfahrens trägt die unterlegene Partei im Prozess.
 per Fax zu übersenden, das Original muss dann aber nachgereicht werden.
 
 -https://www.justiz.nrw.de/Gerichte_Behoerden/fachgerichte/Verwaltungsgericht/einstweilige_anordnung/index.php#1
- Antrag an Doc15 Behörde?
+ Unterlassungs-Antrag an Doc15 Behörde voran? Verzichtbar?
+
 -Google: muster verwaltungsgericht verbotsantrag Eilantrag
