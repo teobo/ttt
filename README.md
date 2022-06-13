@@ -18,8 +18,6 @@ https://de.m.wikipedia.org/wiki/Volksverhetzung
 -gegen Verleztes Gesetz: 1. Volksverhetzung
 
 https://de.m.wikipedia.org/wiki/Volksverhetzung
-
-
 A (1) Wer in einer Weise, die geeignet ist, den öffentlichen Frieden zu stören
 (2) Mit Freiheitsstrafe bis zu drei Jahren oder mit Geldstrafe wird bestraft, wer
  B einen Inhalt (§ 11 Absatz 3) verbreitet 
@@ -28,3 +26,12 @@ D die Menschenwürde von ...  .Personenmehrheiten dadurch angreift, dass ... die
 
 Die Sicherheit Israelischen Lebens hängt davon ab, dass man sich im "Preis" (Grundlegung zur Metaphysik der Menschenwürde von Kant) teuere Sicherheitsausrüstung erwirtschaften muss. Dieses die menschenwürdige Versorgung mit Sicherheitsleistungen betreffende Alleinstellungsmerkmal, wird auf entsetzliche Art unterschlagen -und somit die inherente Menschenwürde- wenn man wie BDS die Stärke Israels wirtschaftlich beliebig klein pressen will, abei "unbelehrbar" und selbstredend ungehemmt zugunsten von einer Anti-apartheit, einem Allerweltsrassismus.
 Der "öffentliche Frieden"  wird schon allein dadurch beeinträchtigt, dass die einem militärischem Arsenal zugerechneten Propagationen, wiederum aus dem militärischen Arsenal vergeltet werden. Man muss es nicht erst zur Bombardierung Kassels a la zweiter Weltkrieg kommen lassen, es reicht schon einzusehen, dass um die Pfründe gebrachte antisemitische, also antisemitische Mitkonkurrenten zu Strafaktionen ausholen 
+
+Verwaltungsgericht Kassel Behörden
+Goethestraße 41 + 43
+34119 Kassel
+Telefon:
+0561 - 50669-0
+Fax 0611 - 32761-8533
+Email
+govello-1191326111732-000055557@egvp.de-mail.de
