@@ -27,6 +27,24 @@ D die Menschenwürde von ...  .Personenmehrheiten dadurch angreift, dass ... die
 Die Sicherheit Israelischen Lebens hängt davon ab, dass man sich im "Preis" (Grundlegung zur Metaphysik der Menschenwürde von Kant) teuere Sicherheitsausrüstung erwirtschaften muss. Dieses die menschenwürdige Versorgung mit Sicherheitsleistungen betreffende Alleinstellungsmerkmal, wird auf entsetzliche Art unterschlagen -und somit die inherente Menschenwürde- wenn man wie BDS die Stärke Israels wirtschaftlich beliebig klein pressen will, abei "unbelehrbar" und selbstredend ungehemmt zugunsten von einer Anti-apartheit, einem Allerweltsrassismus.
 Der "öffentliche Frieden"  wird schon allein dadurch beeinträchtigt, dass die einem militärischem Arsenal zugerechneten Propagationen, wiederum aus dem militärischen Arsenal vergeltet werden. Man muss es nicht erst zur Bombardierung Kassels a la zweiter Weltkrieg kommen lassen, es reicht schon einzusehen, dass um die Pfründe gebrachte antisemitische, also antisemitische Mitkonkurrenten zu Strafaktionen ausholen 
 
+-Documenta Vom Geist der BDS Bewegung durchdrungen, unter dem propagandistisch-militärischem Druck nicht mehr
+bereit Widerreden durch Gspräch eine Bühne zu geben.
+Das Papier weißt eine Zusammenballung von BDS-Aktivisten,
+in den Reihen tonangebender Veranteortlicher, von deren
+"unbelehrbarkeit" ausgegangen werden kann.
+
+Zur schwere, Erheblichkeit, des in rede stehenden konfliktpotentials
+sei vermerkt, dass nicht nur der deutsche Bundestag 2021 Aktionen von
+BDS verboten hat, sondern auch es der Staat Israel selbst ist,
+der Einreiseverbote verhängt. Dinge die bei latenten, streitbareren Antisemitismus
+Fällen nicht geschehen.
+
+https://www.deubner-recht.de/news/verkehrsrecht/details/artikel/verbot-von-e-scootern-im-eilverfahren-gescheitert.html
+"
+Die Tatbestandsvoraussetzungen des § 22 Abs. 1 Satz 1 StrWG NRW lägen bereits nicht vor. Nach dieser Vorschrift könne die Behörde insbesondere die erforderlichen Maßnahmen zur 
+Beendigung der Straßenbenutzung anordnen, "
+
+
 Verwaltungsgericht Kassel Behörden
 Goethestraße 41 + 43
 34119 Kassel
