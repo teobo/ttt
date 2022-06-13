@@ -18,6 +18,8 @@ https://de.m.wikipedia.org/wiki/Volksverhetzung
 -gegen Verleztes Gesetz: 1. Volksverhetzung
 
 https://de.m.wikipedia.org/wiki/Volksverhetzung
+Argumentation Gerüst
+---------------------
 A (1) Wer in einer Weise, die geeignet ist, den öffentlichen Frieden zu stören
 (2) Mit Freiheitsstrafe bis zu drei Jahren oder mit Geldstrafe wird bestraft, wer
  B einen Inhalt (§ 11 Absatz 3) verbreitet 
@@ -39,13 +41,17 @@ BDS verboten hat, sondern auch es der Staat Israel selbst ist,
 der Einreiseverbote verhängt. Dinge die bei latenten, streitbareren Antisemitismus
 Fällen nicht geschehen.
 
+
 https://www.deubner-recht.de/news/verkehrsrecht/details/artikel/verbot-von-e-scootern-im-eilverfahren-gescheitert.html
 "
 Die Tatbestandsvoraussetzungen des § 22 Abs. 1 Satz 1 StrWG NRW lägen bereits nicht vor. Nach dieser Vorschrift könne die Behörde insbesondere die erforderlichen Maßnahmen zur 
 Beendigung der Straßenbenutzung anordnen, "
 
 
-Verwaltungsgericht Kassel Behörden
+Sonstiges
+---------
+
+-Verwaltungsgericht Kassel Behörden
 Goethestraße 41 + 43
 34119 Kassel
 Telefon:
@@ -53,3 +59,15 @@ Telefon:
 Fax 0611 - 32761-8533
 Email
 govello-1191326111732-000055557@egvp.de-mail.de
+
+-https://www.haufe.de/recht/deutsches-anwalt-office-premium/54-verwaltungsverfahrens-und-verwaltungsprozessrecht-xvi-muster-antrag-auf-erlass-einer-einstweiligen-anordnung_idesk_PI17574_HI14751537.html
+
+Eilantrag=EA?
+Die Kosten des Verfahrens trägt die unterlegene Partei im Prozess.
+?? Sch?, Insolvenzmasse??  Bloße Pol. Strafanzeige?, Gibts das?
+
+per Fax zu übersenden, das Original muss dann aber nachgereicht werden.
+
+-https://www.justiz.nrw.de/Gerichte_Behoerden/fachgerichte/Verwaltungsgericht/einstweilige_anordnung/index.php#1
+ Antrag an Doc15 Behörde?
+-Google: muster verwaltungsgericht verbotsantrag Eilantrag
