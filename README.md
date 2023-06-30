@@ -72,3 +72,16 @@ per Fax zu übersenden, das Original muss dann aber nachgereicht werden.
  Unterlassungs-Antrag an Doc15 Behörde voran? Verzichtbar?
 
 -Google: muster verwaltungsgericht verbotsantrag Eilantrag
+
+
+############# 30.6.23 Notiz zu SGB2 
+NovellenTemplate=
+"Snippet on
+(Beizufügen der schwelenden Verfassungsklage gegen Dauer-Reinitialisierung als Beweis der Überlastung des Alg2 empfängers: Stichwort Mückenschwärme. Oder beizufügen bei drohenden derartigen Regelsatzdeprivationen.)
+
+Aufklärungsnovelle zum Stück: Vakuumpumpe oder Warum müssen Tiere sterben?
+
+Mit Markus 4 betrachtet werden gerade die Tiere vertrieben, die Wüstentier mit Feuer vertrieben. Das Feuer kann gut erfunden als so etwas wie den stalinistischen Niederschuss an Hundert Tausend Mitarbeitern sich erwähnen lassen, um zu erkennen, dass die Belastung nicht dem Empfänger zu betreffen hätte. Chatgpt allein hätte keine Probleme eine Novelle zu begreifen, in der im dark net aus Kassel oder überregional  nachweislich Regelsatz unterbindende Produkte, u.a. "Ihre Regelsatz-Vakuumpumpe für den Bevölkerumgskörper", angeboten werden, für einen aufklärungsdefizitären Praxisbetrieb, gegen den der Rechtsstaat durchgesetzt gehört und, der wenigstens den Industriestandort nur immer weiter schädigt. Mit trickreicherem Vorgaukeln entfallen die Regelsätze in hoher.Ziffer im Leben der Menschen. Bei peinlicher Außerkraftsetzung von Rückwirkungregeln bei Neuantragstellung scheint ein ein Strafstellenbereich erobert, den man eine wahnwitzige Huldigung des Kontinuitätsabruchs nennen könnte: Weder einmonatliche Rückwirkungsfristem für Weiter- noch für Neuantragsstellung gölten noch, so man sie bräuchte. Dem einfallenden Widersinn, oder Unsinn, gemäß werden Details einer solchen unausgeschilderte Unfallstelle nirgends bekannt. Auch eine Protestmail, eines Empfängers an die Bundesleitstelle Arbeitsagentur, mit Machenschaften eines  dschuristischen Dschihads auf dem Wege der sog. umgekehrten Diskriminierumg inkriminiert zu werden, sei erwähnt. Sie entgegnete im Zusammenhang, "schwierig" genannter Entscheider-Blackboxes namens Leistungsabteilung. Bei allem bleiben für scan-bots die defakto Regelsatzdeprivationen, mit Leichtigkeit in diesem Fall, zu finden, für und dem Blutgeld, dem Geld was am Tod einer Person sich verdient oder erspart, zu identifizieren, d.h. bevölkerungsstatistisch aufzuspüren und dem Mitarbeiter Aussicht zu bieten ins Visier zu gerate, was zu.beweisen stand. Es wäre, so ein Vorschlag, zu wünschen, dass die Mitarbeiter Personengruppe beim Zusammenfügen, Konkatenieren von Regelsätzen intelligenter im eigenen Interesse, rechtsstaatlich zuverlässiger und auch erst menschenfreundlicher im sehr wohl tierschützenden, novellarischen Rahmem sich gerieren, und, dass sich mit dem Bürgergeld jetzt ein Phantomzucken von vorher schnell miterledige.
+Angefügt sei ein Diagramm  wie im Anschluss an kontinuierlichen Bezug auf einer monatlichen Zeitleiste, monatliche Regelsätze regelrecht zu Vakuum, Lücken, werden, während Sachverhaltsänderungen ja gar nicht in Frage steht. Man ist eben dann noch gerne der in der Unsinnigkeit offensive Regelsatzentzieher.
+
+Snippet off"
